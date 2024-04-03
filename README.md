@@ -1,4 +1,4 @@
-🌱 I’m currently learning .Net<br>
+Hi 👋! I'm Berker
 
 
 # 🌐 Socials:
